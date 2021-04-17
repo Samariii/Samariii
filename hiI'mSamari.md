@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Samariii
+- 👀 I’m interested in machine learning and ai.
+- 🌱 I’m currently learning html + css.
+- 💞️ I’m looking to collaborate on nothing atm.
+- 📫 How to reach me https://twitter.com/SamariMeme/ or https://www.instagram.com/salmon.pkg/
